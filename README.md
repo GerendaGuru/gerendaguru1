@@ -1,1 +1,1 @@
-# gerendaguru1
+# Gerenda Guru Kft.
